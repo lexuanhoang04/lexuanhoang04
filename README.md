@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **lexuanhoang2004@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1tVyWk-mv5iZgNOg0AuCrNtB7k1XnklOQ/view?usp=sharing]
+- 📄 Know about my experiences https://drive.google.com/file/d/1tVyWk-mv5iZgNOg0AuCrNtB7k1XnklOQ/view?usp=sharing
 
 - ⚡ Fun fact **I love playing table tennis and violin**
 
